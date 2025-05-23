@@ -4,9 +4,9 @@
 I'm passionate about **technology**, **digital learning**, and making knowledge accessible to everyone — even though I'm not a developer myself.  
 I specialize in **Learning Management Systems (LMS)** and love creating learning environments that empower people to grow.  
 
-🕹️ In my free time, you'll probably find me enjoying a good **video game** — I love how interactive worlds can tell powerful stories and spark creativity.  
+🧠 I believe that **education + tech = opportunity** 🚀  
 
-I believe that **education + tech = opportunity** 🚀
+🎮 In my free time, you’ll probably find me **playing video games**, **reading**, **doing sports** — or sometimes just **doing absolutely nothing** 😌. I think balance is everything.
 
 ---
 

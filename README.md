@@ -1,7 +1,7 @@
 ### 👋 Hi, I'm Esther Farré Gutiérrez  
 🎓 **Pedagogue** | 💻 **LMS Specialist** | 🌍 Based in **Barcelona** | 👩‍🏫 Working at **IT Academy**
 
-I'm passionate about **technology**, **digital learning**, and making knowledge accessible to everyone — even though I'm not a developer myself.  
+I'm passionate about **technology**, **digital learning** and **pedagogies**, and making knowledge accessible to everyone — even though I'm not a developer myself.  
 I specialize in **Learning Management Systems (LMS)** and love creating learning environments that empower people to grow.  
 
 🧠 I believe that **education + tech = opportunity** 🚀  
